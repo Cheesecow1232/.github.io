@@ -8,4 +8,4 @@ Kris By Mario Piatkowski (Thats also me!)
 just me messing with finding my style. i like this so after long nights of serching, I might have found it! :D
 
 # To Request A Commission
-All you nee to do is fill out this form: https://forms.office.com/r/wxu8aNZ151
+All you nee to do is fill out this form: [Commission Form](https://forms.office.com/r/wxu8aNZ151)
